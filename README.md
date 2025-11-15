@@ -42,7 +42,7 @@ pls int with me.. 😿
 <h3 align="center">Draw me something on my Strawpage!<br/>
 </h3>
 </p>
-<p align="center">(https://aoicrynn.straw.page)<br/>
+<p align="center">(https://hypersxmniac.straw.page)<br/>
 </p>
 <h3 align="center">- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - 
 </h3>

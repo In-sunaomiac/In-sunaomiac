@@ -35,7 +35,7 @@ pls int with me.. 😿
 <h3 align="center">Sign my Atabook!<br/>
 </h3>
 </p>
-<p align="center">(https://luvconqersall.atabook.org)<br/>
+<p align="center">(https://hypersxmniac.atabook.org/)<br/>
 </p>
 </p>
 <h3 align="center">| ⩇⩇:⩇⩇ |</h3>

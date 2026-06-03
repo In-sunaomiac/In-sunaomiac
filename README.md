@@ -25,7 +25,7 @@
 </h3>
 <h3 align="center">Fandoms 'n Interests</h3>
 <p align="center">
-eve家, ride the cyclone, epic: the musical, utau/vocaloid, etc</p>
+MILGRAM!, eve家, ride the cyclone, epic: the musical, utau/vocaloid, etc</p>
 <p align="center">
 pls int with me.. 😿
 </p>
